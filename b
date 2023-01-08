@@ -1,1 +1,1 @@
-github에서 만든 파일
+github에서 brbr에서 만듦
