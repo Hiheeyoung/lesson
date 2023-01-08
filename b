@@ -1,1 +1,1 @@
-github에서 brbr에서 만듦
+github에서 drdr에서 만듦
